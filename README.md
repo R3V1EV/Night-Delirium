@@ -1,2 +1,0 @@
-# Night-Delirium
-Инфа игры
